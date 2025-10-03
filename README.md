@@ -1,4 +1,4 @@
-### Hi there 👋, I'm ORxan Rajabov
+### Hi there 👋, I'm ORxan Racabov
 
 ---
 
